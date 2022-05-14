@@ -1,0 +1,1 @@
+1 暗时间 http://mindhacks.cn/
